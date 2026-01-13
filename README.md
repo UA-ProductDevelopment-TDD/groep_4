@@ -24,6 +24,13 @@ De Bittle reageert:
 - Lovable AI
 
 ## Team
-- Naam 1
-- Naam 2
-- Naam 3
+- Eline Praille
+- Jorre Vrambout
+- Louis Van der Velde
+- Aaron Michielsen
+- Dounia Kelchtermans
+- Jinke Van Hooste
+- Merlijn Huizinga
+- Noelle van den Hoogen
+- Wout Accou
+- Luna Hongenaert
